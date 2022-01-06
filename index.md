@@ -6,7 +6,7 @@
 
 #### Pros: They're pickle chips
 
-#### Cons: Very salty, pickle flavor borders on sour, greasy
+#### Cons: Very salty, pickle flavor extremely sour, greasy
 
 #### Rating: 2.5/5 stars
 
