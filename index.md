@@ -27,7 +27,7 @@ to the point of being obnoxious &mdash; you're going to need a beverage to pair
 with these crisps and you might feel your face start to tingle after eating a
 few handfuls. Further, while the dill pickle flavor isn't necessarily bad, it's
 extremely sour. After eating a generous-but-reasonable helping, the snacker may
-feel their tongue start to feel raw and sensitive, diminishing their appeal. 
+feel their tongue start to feel raw and sensitive, diminishing the chips' appeal. 
 
 In sum, the Lays Dill Pickle chips will get the job done if you're in a pickle,
 but nothing more. Their saltiness and sourness are major cons, and the chip
