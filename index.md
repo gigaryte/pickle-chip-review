@@ -1,8 +1,29 @@
+## Pringles Dill Pickle
+
+#### Date Reviewed: 21 January 2022
+
+#### Cut: Thin, non-ruffled, [hyperbolic paraboloid](https://en.wikipedia.org/wiki/Paraboloid#Hyperbolic_paraboloid)
+
+#### Pros: Come in a Pringles tube for on-the-go pickle-chipping
+
+#### Cons: Make you sad when you eat them. Unclear whether they're made from
+potatoes or recycled cardboard. Pickle flavor tastes artificial and has sweet
+notes.
+
+#### Rating: 2/5 stars
+
+#### Review:
+
+> Some [chips] are born mediocre, some men achieve mediocrity, and some men have
+> mediocrity thrust upon them. With [Pringles Dill Pickle chips] it had been all
+> three. 
+> -- Joseph Heller
+
 ## Lays Dill Pickle
 
 #### Date Reviewed: 5 January 2022
 
-#### Cut: Thin, non-ruffled, medium-sized
+#### Cut: Very thin, non-ruffled, medium-sized
 
 #### Pros: They're pickle chips
 
