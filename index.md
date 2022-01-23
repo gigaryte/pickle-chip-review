@@ -1,14 +1,55 @@
+## Trader Joe's "Chips in a Pickle" Dill Pickle 
+
+#### Date Reviewed: 22 January 2022
+
+#### Characteristics: Medium-thick cut, visible dill flecks, irregularly-shaped crispy chips. Color ranges from light to medium brown, depending on fried-ness. Size varies from half-dollar-sized to soda-can width.
+
+#### Pros: All-around performer. Right balance of salt with dill pickle flavor. Crunchy but still light. Non-greasy.
+
+#### Cons: Product of Canada.
+
+#### Rating: 4.5/5 stars
+
+#### Review: 
+
+Trader Joe's "Chips in a Pickle" pickle chips are by far the best pickle chip
+this site has reviewed so far. The packaging claims these chips are made from
+russet potatoes "harvested on their supplier's 4th generation potato farm".
+While it's likely that this is just marketing-speak for "some guy whose family
+was forced off their land by a faceless, soulless multinational agribusiness
+conglomerate growing genetically-enhanced super-potatoes now works for the
+company", tasting these chips makes you almost believe the story. A weathered,
+overall-bedecked farmer stands on the porch of his two-story farmhouse, squinted
+eyes scanning the horizon for any sign of rain. Crumbling fertile soil between
+his fingers, he studies the dirt as it rejoins the Earth from whence it came.
+"I'm just a simple man," he mutters softly to no one in particular, "put on this
+planet to create the best damn pickle-flavored potato chips I can."
+
+And boy, did he. These chips have it all. First, they're very obviously made
+from actual potatoes, unlike the Pringles rice/potato-slurry wafers reviewed
+yesterday.  Brilliant brown sunburst striations color these fried tubers. They
+appear in a variety of shapes that you would expect from a sliced cultivar of
+*Solanum tuberosum*. You might find an occasional piece of potato skin, but it
+appears to be the exception rather than a feature. The chip falls squarely
+within the so-called "Goldilocks Zone" of potato chip thickness -- it's several
+times thicker than the reference Lays potato chip, but is on the thinner side of
+a standard kettle chip. The pickle flavor is tangy and has solid dill notes that
+comes from (*gasp*) actual dill found on every chip. Even after eating several
+handfuls, you won't detect the slightest greasiness.
+
+These are the pickle chips to beat. If you see these chips, buy them.
+
 ## Pringles Dill Pickle
 
 #### Date Reviewed: 21 January 2022
 
 #### Characteristics: Thin, non-ruffled, dough-based 
  
-#### Pros: Come in a sturdy Pringles tube for on-the-go pickle-chipping
+#### Pros: Come in a sturdy Pringles tube for on-the-go pickle-chipping. Topologically pleasing. Packaging can be used as a [cantenna](https://en.wikipedia.org/wiki/Cantenna).
 
-#### Cons: Make you sad when you eat them. Unclear whether they're made from potatoes or recycled cardboard. Pickle flavor tastes artificial and has a sweet aftertaste.
+#### Cons: Make you sad when you eat them. Unclear where the chip ends and cardboard packaging begins. Pickle flavor tastes artificial and has a sweet aftertaste.
 
-#### Rating: 2/5 stars
+#### Rating: 1.5/5 stars
 
 #### Review:
 
@@ -22,7 +63,7 @@ Let's face it -- Pringles are objectively bad chips. They begin their lives as a
 ["slurry of rice, wheat, corn, and potato flakes" that are then "pressed into
 shape"](https://gizmodo.com/the-shocking-true-story-of-how-pringles-are-made-30802015),
 ultimately forging an unholy potato-adjacent snack-chimera damned to wander the
-Earth for all eternity by a vengeful deity. Sure, we all enjoyed them as
+Earth for all eternity by a malevolent deity. Sure, we all enjoyed them as
 children because their mindless uniformity and unrivaled position as the
 "most-stackable" snack seemed whimsical and fun in an otherwise confusing,
 disorderly, and complicated world we were searching for our place in. But as we
