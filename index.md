@@ -13,7 +13,7 @@
 #### Review: 
 
 Trader Joe's "Chips in a Pickle" pickle chips are by far the best pickle chip
-this site has reviewed so far. The packaging claims these chips are made from
+this site has reviewed to date. The packaging claims these chips are made from
 russet potatoes "harvested on their supplier's 4th generation potato farm".
 While it's likely that this is just marketing-speak for "some guy whose family
 was forced off their land by a faceless, soulless multinational agribusiness
