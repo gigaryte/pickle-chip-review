@@ -13,8 +13,11 @@
 #### Review: 
 
 > Any escape might help to smooth
+> 
 > The unattractive truth
+> 
 > But the suburbs have no charms to soothe
+> 
 > The restless dreams of youth
 >
 > -- Rush, *Subdivisions*
