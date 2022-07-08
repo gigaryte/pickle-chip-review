@@ -1,3 +1,59 @@
+## Utz Ripples Fried Dill Pickle 
+
+#### Date Reviewed: 7 July 2022
+
+#### Characteristics: Medium sized chips with thin ruffles; base potato chip structurally identical to Ruffles. Visible dill flecks.
+
+#### Pros: Strong but natural pickle flavor.  
+
+#### Cons: Base potato chip is pedestrian, garden-variety ruffled chip
+
+#### Rating: 4/5 stars
+
+#### Review: 
+
+> Any escape might help to smooth
+> The unattractive truth
+> But the suburbs have no charms to soothe
+> The restless dreams of youth
+>
+> -- Rush, *Subdivisions*
+
+When I was living in Southern California about a decade ago, I quickly tired
+of renting an apartment west of the 5 for a king's ransom. So, my girlfriend and I
+packed up and headed east out toward the Inland Empire in search of a place to
+live with a four-digit square footage and backyard for my dog, a move I like to
+think of as a "reverse-Okie". We landed in a place off of the 15 in a brand new
+neighborhood, and at first, I thought it was pretty boss. That is, until
+I was walking my dog around our new domicile and realized that the entire
+subdivision had only *three* floor plans. Neighboring houses as mirror images.
+One house blue, the next ochre. Floor plan chirality. The rich tapestry of life
+reduced to a banal Mad Lib of shutter and front door styles. I've since realized this
+type of neighborhood design is incredibly common in newly constructed
+developments, but at the time I just remember feeling sad. Sad that
+these houses &mdash; the place where toddlers will take their first steps,
+kids set off for their first day of school, arguments had and differences
+reconciled &mdash; the scene of all of these things that
+make life *life* can be reduced to a short vector of design options, a change
+to any one of which will describe some other person's house down the block. What
+kind of home can be represented as a 4-tuple?
+
+Utz's "Fried Dill Pickle" is a worthy entry from the Hanover, PA snack purveyors
+in the hyper-competitive pickle chip market niche. The chip has a strong,
+natural pickle flavor; it's probably the pickliest pickle chip I've had to date.
+My sole issue with these chips is their form factor. This chip is exactly the
+Ruffles potato chip we've all had (Utz describes this design as "Ripples" for
+legal reasons, no doubt) an uncountable number of times throughout our lives.
+They're medium-sized chips with thin, ruffled ridges. Why is this a problem?
+Compared to the amount of effort Utz obviously put into the flavoring that goes
+on these chips, the chip itself just seems... lazy. 
+
+The above notwithstanding, this is a good pickle chip and if you, unlike me, do
+not rely on reviewing pickle-flavored potato chips as your sole source of
+income, you will enjoy consuming it. Amateur pickle chip enthusiasts will be
+unbothered by the lack of creativity involved in the design of the underlying
+potato chip, and bask in its luxurious pickle taste.
+
 ## Trader Joe's "Chips in a Pickle" Dill Pickle 
 
 #### Date Reviewed: 22 January 2022
