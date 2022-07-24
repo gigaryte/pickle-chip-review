@@ -74,9 +74,12 @@ If you see these in store, I'd pick up a bag.
 
 #### Review: 
 
-> Any escape might help to smooth &nbsp;
-> The unattractive truth <br>
+> Any escape might help to smooth
+> 
+> The unattractive truth
+> 
 > But the suburbs have no charms to soothe
+> 
 > The restless dreams of youth
 >
 > -- Rush, *Subdivisions*
