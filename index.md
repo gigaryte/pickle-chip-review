@@ -1,3 +1,65 @@
+## Ruffles Spicy Dill Pickle
+
+#### Date Reviewed: 23 July 2022
+
+#### Characteristics: Medium sized ruffled chips. They're obviously exactly the same base potato chip as traditional Ruffles 
+
+#### Pros: Nontraditional spicy entry in the pickle chip market by a well-established player. Spice is obviously present but not overpowering
+
+#### Cons: Pickle flavor is fairly sour like Lays Dill Pickle; humiliating purchasing experience
+
+#### Rating: 3.5/5 stars
+
+#### Review: 
+
+I purchased this bag of chips at my local grocery store today, but today's visit
+was not my first attempt at doing so. On the contrary, dear reader. I had tried
+picking them up at the same store a couple of weeks ago, but upon scanning them
+in the self-checkout, a cacophony of alarms rang out. "Help is on the way,"
+reassured an affectless and disembodied robotic woman's voice, unaware that no
+employees were within earshot despite her confidence. So there I stood awaiting
+human intervention, alone, before my automaton judge. When help did arrive, the
+employee discovered these chips were not in the proverbial "system", which had
+caused the machine's perturbation. "No matter," replied I to the clerk,
+concealing disappointment under a false veil of hurriedness. "I'll do without."
+
+My thoughts often returned to these chips in the intervening weeks. Having never
+before seen them, my principal concern was that they were part of some limited
+production run and, after blossoming into the pickle chip scene, would silently
+slip away into the mists of time as a nothing but memory in the minds of those
+lucky few fortunate enough to experience them. If that were to be the fate of
+these chips, I would be counted among their number, I resolved.
+
+Having allowing the grocery store several weeks to correct the "system"'s
+shortcomings, I steeled myself and returned today for another attempt to
+purchase these chips. To my relief, I located them chips among their non-spicy
+and dill-less brethren and moved to the self-checkout. Standing again before the
+cold unblinking eye of the grocery automaton, I hesitated, Ruffles Spicy Dill
+Pickle chips bag in hand. I exhaled. Then, I scanned them. 
+
+To my horror, the chips were *again* a mystery to the "system". A first
+employee, befuddled by the machine's intransigent insistence that it knew
+nothing about any Ruffles Spicy Dill Pickle chips, abandoned me to seek
+more qualified help. A second employee was dispatched to the chip row in search
+of ground truth about the product's cost. All the while, there I stood, an
+object of curiosity and ridicule to my fellow shoppers, the lighted number 3
+above my checkout station pulsing slowly, punctuated by the android woman's calm
+reassurances that in short order, everything would be ok. 
+
+Finally, the manager reappeared, having obtained knowledge of the remittance
+required for the privilege of eating these crisps (*NB: $5.50, which is an
+insane amount to pay for a regular-sized bag of chips*). "You the spicy pickle
+guy?" he asked. Having answered in the affirmative, I suspect that my pride will
+not permit me to return to this store, having acquired such an epithet. 
+
+These are decent pickle chips. The basic chip is your standard Ruffles crisp; a
+uniform, thinly-ruffled, medium-sized chip. The pickle flavor is fairly sour,
+and presumably the same flavoring used in the Lays Dill Pickle chips (see review
+below) as they both are manufactured by Frito-Lay. The spiciness is the
+differentiator here, however. Its onset comes after the pickle flavor begins to
+wane, and is neither too mild nor too spicy, and adds .50 stars to the rating.
+If you see these in store, I'd pick up a bag.
+
 ## Utz Ripples Fried Dill Pickle 
 
 #### Date Reviewed: 7 July 2022
@@ -8,16 +70,13 @@
 
 #### Cons: Base potato chip is pedestrian, garden-variety ruffled chip
 
-#### Rating: 4/5 stars
+#### Rating: 3.75/5 stars
 
 #### Review: 
 
 > Any escape might help to smooth
-> 
 > The unattractive truth
-> 
 > But the suburbs have no charms to soothe
-> 
 > The restless dreams of youth
 >
 > -- Rush, *Subdivisions*
@@ -49,7 +108,8 @@ Ruffles potato chip we've all had (Utz describes this design as "Ripples" for
 legal reasons, no doubt) an uncountable number of times throughout our lives.
 They're medium-sized chips with thin, ruffled ridges. Why is this a problem?
 Compared to the amount of effort Utz obviously put into the flavoring that goes
-on these chips, the chip itself just seems... lazy. 
+on these chips, the chip itself just seems... lazy. It's the pickle chip version
+of the modern suburban hellscape &mdash; each one a facsimile of the other.
 
 The above notwithstanding, this is a good pickle chip and if you, unlike me, do
 not rely on reviewing pickle-flavored potato chips as your sole source of
