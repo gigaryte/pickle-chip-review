@@ -30,7 +30,7 @@ slip away into the mists of time as a nothing but memory in the minds of those
 lucky few fortunate enough to experience them. If that were to be the fate of
 these chips, I would be counted among their number, I resolved.
 
-Having allowing the grocery store several weeks to correct the "system"'s
+Having allowed the grocery store several weeks to correct the "system"'s
 shortcomings, I steeled myself and returned today for another attempt to
 purchase these chips. To my relief, I located them chips among their non-spicy
 and dill-less brethren and moved to the self-checkout. Standing again before the
