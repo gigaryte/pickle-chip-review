@@ -136,7 +136,7 @@ this site has reviewed to date. The packaging claims these chips are made from
 russet potatoes "harvested on their supplier's 4th generation potato farm".
 While it's likely that this is just marketing-speak for "some guy whose family
 was forced off their land by a faceless, soulless, multinational agribusiness
-conglomerate growing genetically-enhanced super-potatoes now works for the
+conglomerate growing genetically-enhanced &uuml;ber-potatoes now works for the
 company", tasting these chips almost makes you believe the story. A weathered,
 overall-bedecked farmer stands on the porch of his two-story farmhouse, squinted
 eyes scanning the horizon for any sign of rain. Crumbling fertile soil between
